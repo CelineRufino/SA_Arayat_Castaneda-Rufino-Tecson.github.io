@@ -1,1 +1,1 @@
-# SA_Arayat_Castaneda-Rufino-Tecson.github.io
+# Arayat_Castaneda-Rufino-Tecson.github.io
